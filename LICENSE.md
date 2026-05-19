@@ -1,4 +1,4 @@
-# 
+# smart FreshBooks for PC scripts is the best FreshBooks for PC scripts with cloud-sync and invoicing. Safe, reliable, and optimized for maximum performance.
 
 
 
